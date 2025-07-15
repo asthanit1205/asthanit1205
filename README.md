@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Astha.
-- 🌱 I’m currently  a second year B-Tech Computer Engineering Student.
+- 🌱 I’m currently  a third year B-Tech Computer Engineering Student.
 
 
 <!---
